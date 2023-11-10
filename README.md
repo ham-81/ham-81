@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ham-81
+- 👋 Hi, I’m @ham
 - 🤡 I'm interested in finding out what I'm interested in and also coding. 
 - 🌱 I’m currently learning how to stay in denial. No, I'm not. 
 - 💞️ I’m looking to collaborate on community welfare projects.
